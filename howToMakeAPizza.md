@@ -1,6 +1,7 @@
 1. Disolver la levadura en media taza con agua tibia.
-2. Mezcla y amasa harina con un poco de sal, azucar, aceite y la levadura disuelta.
-3. Cubre la masa con una tela y deja reposar una hora.
-4. Extiende la masa en una charola previamente aceitada y agrega los ingredientes.
-5. Hornea a 250° hasta que los bordes se doren y el queso se gratine.
-6. Comer :)
+2. Poner en una fuente harina, aceite, levadura y agua tibia
+3. Mezclar y amasar los ingredientes hasta tener una masa homogenea.
+4. Dejar reposar la masa 1 hora.
+5. Extender la masa en el mesón.
+6. Colocar sobre la masa la salsa de tomate, queso rallado y jamón.
+7. Hornear la pizza por 15 minutos.
