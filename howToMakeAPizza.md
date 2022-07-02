@@ -4,4 +4,5 @@
 4. Dejar reposar la masa 1 hora.
 5. Extender la masa en el mesón.
 6. Colocar sobre la masa la salsa de tomate, queso rallado y jamón.
-7. Hornear la pizza por 15 minutos.
+7. Hornear la pizza por 20 minutos.
+8. dividir la pizza en partes iguales
